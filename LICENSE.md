@@ -1,4 +1,4 @@
-
+Experience blox fruits like never before with blox fruits Script no-ban, the #1 Script. Includes undetectable and god mode for unbeatable performance.
 
 
 
